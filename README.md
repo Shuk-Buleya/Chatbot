@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can reach me via 0991958579, buleyashukuran@gmail.com
-- 😄 Pronouns: He
+- 😄 Pronouns: Mr
 - ⚡ Fun fact: give me a project of a framework i dont even know and i will deliver 😂 am a quick and dedicated learner
 
 <!---
